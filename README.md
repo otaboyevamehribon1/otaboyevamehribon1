@@ -1,4 +1,4 @@
-## HI there 👋
+## Hi there 👋
 
 <h3> Mening IT konikmalarim</h3>
 <ol>
