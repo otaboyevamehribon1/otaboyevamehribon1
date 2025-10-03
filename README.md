@@ -1,4 +1,4 @@
-## Hi there 👋
+## I'm Otabayeva Mehribon Rasulbekovna 👋
 
 <h3> Mening IT konikmalarim</h3>
 <ol>
